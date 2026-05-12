@@ -1,9 +1,5 @@
 
-
-#                               CREDIT: SHASHWAT ADHANA GENEIUS AUR KAUN ;)
-
-
-#               THODA SA CREDIT MODI JI KO BHI (AGAR CREDIT NHI BHI DETA TO BHI LE LETE) :) 
+            
 
 
 #                                           KAAM SHURU YHA SE 
